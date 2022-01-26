@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LeftyDaniels
+- 👀 I’m interested in helping people tell their stories through technology with web design, video, and graphics.
+- 🌱 I’m currently learning blockchains and other technology in the crypto space.
+- 💞️ I’m looking to collaborate on building local culture and helping people live locally.
+- 📫 You can reach me at Aaron.Williams@Polymathic.Company
